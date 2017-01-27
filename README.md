@@ -1,2 +1,1 @@
-# side-project
-This is my primary "side project"
+# My daughter is 27 days old.
