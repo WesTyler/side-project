@@ -1,1 +1,1 @@
-# My daughter is 30 days old.
+# My daughter is 1 month old.
